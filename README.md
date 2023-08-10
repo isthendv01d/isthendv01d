@@ -4,6 +4,8 @@
 
 <sup>Woah, that's a lame name, am I right?</sup>
 
+![Act I scene I](https://cdn.kastatic.org/images/badges/meteorite/act-1-scene-1-60x60.png)
+
 It's almost like:
 
 > xXxSilverHairedElfBabexXx is a pretty cringe name, you might wanna change it.

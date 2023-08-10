@@ -18,7 +18,7 @@ I like programming and playing piano.  That is pretty much it though. [I am _not
 - secrets are kind of my thing to be honest
 - out of this world [<sup>2</sup>](https://melmagazine.com/wp-content/uploads/2020/04/ohio_meme.jpg)
 
-[_sus_ Khan Academy account](https://pages.github.com/)
+[_sus_ Khan Academy account](https://khanacademy.org/profile/isthend)
 <!---
 Hello.  I am a alt... Idek how to say this, but I am pretty sneaky tbh lol
 --->

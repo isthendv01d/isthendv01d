@@ -17,7 +17,7 @@ I like programming and playing piano (I like Piano Sonata No. 14 by Beethoven 3r
 - not ever outside
 - going to never go swim with the sharks in the pool
 - to `_` I go!
-- secrets are kind of my thing to be honest
+- secrets
 - out of this world [<sup>2</sup>](https://melmagazine.com/wp-content/uploads/2020/04/ohio_meme.jpg)
 
 [_sus_ Khan Academy account](https://khanacademy.org/profile/isthend)
